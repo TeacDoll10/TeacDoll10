@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...spanish
 - 🌱 I’m currently learning ...spanish<3
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me ...idk
 -
 
 <!---
